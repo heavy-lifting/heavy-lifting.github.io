@@ -1,7 +1,7 @@
 ---
 layout: post
 title: "tidal club"
-date: 2017-0217
+date: 2017-02-17
 ---
 
 along with <a href="http://slab.org/">alex mclean</a> i have been organising tidal club in sheffield.  it's a monthly get together for tidal users (from the n00b to the grand master) and it has been super fun so far - we just had our second meet up last night.
