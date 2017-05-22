@@ -22,11 +22,13 @@ i have been playing quite a lot of shows lately which has been super fun!
 
    phew three algoraves in a row - almost too much fun.  again i was on the door so didn't catch many of the earlier sets but i did see a little bit of qirky, all of [polinski](https://twitter.com/polinski) and the final ever [algobabez](https://twitter.com/algobbz) set (sob).  i don't know what polinksi was doing but it sounded great - piano plus glitched out speedy drums.  algobabez was just 2 emotional - not sure how algorave will survive without them.  there were tons of people there which is great as we raised a lot of money for access space and i think quite a lot of people were new to algorave and seemed to be digging it which is great.  i used the eurovision samples plus some blood sport samples.  not sure how my set was as i couldn't hear that well and i haven't watched it back yet - people seemed to enjoy it though which makes me happy.  also my dad watched it on livestream and he was into it so i know i must have really made it now :P  oh yeh also nearly forgot but me and ryan did a little impromptu troop set at the beginning which was also super fun and i thought sounded decent considering we hadn't practiced and i'd forgotten how to use foxdot.
    
-   here is a pic of me by [adforperu](https://www.instagram.com/adforperu/) on instagram
+   here is a pic of me playing by [adforperu](https://www.instagram.com/adforperu/) on instagram
    
    ![heavy!](https://s13.postimg.org/p5ots2bzb/heavy_lifting_sheffield_algo.png)
 
-   mind apeture took a load of awesome pics of the whole night which you can find [HERE](https://www.facebook.com/pg/mindaperture.art/photos/?tab=album&album_id=1687994421501579)
+   mind aperture took a load of awesome pics of the whole night which you can find [HERE](https://www.facebook.com/pg/mindaperture.art/photos/?tab=album&album_id=1687994421501579)
+   
+   ![this pic is courtesy of mind aperture](https://s18.postimg.org/olzc20fix/18623261_1687996301501391_82691831346291889_o.jpg)
 
 * not a gig
 
