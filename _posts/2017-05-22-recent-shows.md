@@ -38,7 +38,7 @@ i used the eurovision samples plus some blood sport samples.  not sure how my se
 
 oh yeh also nearly forgot but me and ryan did a little impromptu troop set at the beginning which was also super fun and i thought sounded decent considering we hadn't practiced and i'd forgotten how to use foxdot.
 
-mind aperture took a load of awesome pics of the whole night which you can find [HERE](https://www.facebook.com/pg/mindaperture.art/photos/?tab=album&album_id=1687994421501579)
+mind aperture took a load of awesome pics of the whole night which you can find [here](https://www.facebook.com/pg/mindaperture.art/photos/?tab=album&album_id=1687994421501579)
    
 ![this pic is courtesy of mind aperture](https://s18.postimg.org/olzc20fix/18623261_1687996301501391_82691831346291889_o.jpg)
 
