@@ -28,7 +28,7 @@ i didn't get to see many of the other acts as i was sitting on the door for a lo
 
 phew three algoraves in a row - almost too much fun.  again i was on the door so didn't catch many of the earlier sets but i did see a little bit of qirky, all of [polinski](https://twitter.com/polinski) and the final ever [algobabez](https://twitter.com/algobbz) set (sob).  i don't know what polinksi was doing but it sounded great - piano plus glitched out speedy drums.  algobabez was just 2 emotional - not sure how algorave will survive without them.  
 
-there were tons of people there which is great as we raised a lot of money for access space and i think quite a lot of people were new to algorave and seemed to be digging it which is great.  
+there were tons of people there which is great as we raised a lot of money for access space and i think quite a lot of people were new to algorave and seemed to be digging it which is also great.  
 
 here is a pic of me playing by [adforperu](https://www.instagram.com/adforperu/) on instagram
    
