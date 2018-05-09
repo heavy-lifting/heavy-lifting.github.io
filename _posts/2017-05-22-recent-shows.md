@@ -10,7 +10,7 @@ i have been playing quite a lot of shows lately which has been super fun!
 
 i did double duty at the recent leeds algorave performing first in collaboration with [qirky](https://qirky.github.io/) and laurie as TYPE using [foxdot](http://foxdot.org/) via [troop](https://github.com/Qirky/Troop).  ryan has been developing troop as an interface for collaborative live coding and it's a lot of fun.  
 
-![here is a pic of us remotely dealing with errors whilst jamming](https://s1.postimg.org/5d29tyaun/foxdot1.png)
+![here is a pic of us remotely dealing with errors whilst jamming](https://s1.postimg.cc/5d29tyaun/foxdot1.png)
 
 later i did a solo set which i was a bit less psyched for and i didn't feel i gave my best performance which was a bit disappointing but it really doesn't matter cause all the other acts were awesome and the whole night was really fun, i didn't stop smiling!  only un-fun part was driving home at 3am but at least i had alex to keep me company.
 
@@ -20,7 +20,7 @@ my secret shame is that i'm a eurovision megafan so just imagine my disappointme
 
 we were also using a whole bunch of chemical data provided by the lab which i used for some weirdness in my parameters.  
 
-![some lush protein visualisations from the lab](https://s15.postimg.org/p7f46dvq3/Screen_Shot_2017-04-13_at_16.56.19.png)
+![some lush protein visualisations from the lab](https://s15.postimg.cc/p7f46dvq3/Screen_Shot_2017-04-13_at_16.56.19.png)
 
 i didn't get to see many of the other acts as i was sitting on the door for a lot of the night, but i caught a little bit of qirky, [calum gunn](http://www.calumgunn.com/) and livedog who all performed extremely chemical sets. the venue was awesome and i love newcastle.  another fun night!
 
@@ -32,7 +32,7 @@ there were tons of people there which is great as we raised a lot of money for a
 
 here is a pic of me playing by [adforperu](https://www.instagram.com/adforperu/) on instagram
    
-![heavy!](https://s13.postimg.org/p5ots2bzb/heavy_lifting_sheffield_algo.png)
+![heavy!](https://s13.postimg.cc/p5ots2bzb/heavy_lifting_sheffield_algo.png)
 
 i used the eurovision samples plus some blood sport samples.  not sure how my set was as i couldn't hear that well and i haven't watched it back yet - people seemed to enjoy it though which makes me happy.  also my dad watched it on livestream and he was into it so i know i must have really made it now :P  
 
@@ -40,7 +40,7 @@ oh yeh also nearly forgot but me and ryan did a little impromptu troop set at th
 
 mind aperture took a load of awesome pics of the whole night which you can find [here](https://www.facebook.com/pg/mindaperture.art/photos/?tab=album&album_id=1687994421501579)
    
-![this pic is courtesy of mind aperture](https://s18.postimg.org/olzc20fix/18623261_1687996301501391_82691831346291889_o.jpg)
+![this pic is courtesy of mind aperture](https://s18.postimg.cc/olzc20fix/18623261_1687996301501391_82691831346291889_o.jpg)
 
 ## not a gig
 
