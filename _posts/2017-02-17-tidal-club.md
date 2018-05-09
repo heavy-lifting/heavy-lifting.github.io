@@ -20,6 +20,6 @@ new track up <a href="https://soundcloud.com/hl6">here</a>, and some <a href="ht
 
 also making me very happy this month is an elephant wearing trousers (it was cold):
 
-[![C2jrV5WXcAQ9o1U.jpg](https://s8.postimg.org/n5zw5u0qt/C2jr_V5_WXc_AQ9o1_U.jpg)](https://postimg.org/image/5fy7ksn5t/)
+[![C2jrV5WXcAQ9o1U.jpg](https://s8.postimg.cc/n5zw5u0qt/C2jr_V5_WXc_AQ9o1_U.jpg)](https://postimg.cc/image/5fy7ksn5t/)
 
 ciao!!!!!
