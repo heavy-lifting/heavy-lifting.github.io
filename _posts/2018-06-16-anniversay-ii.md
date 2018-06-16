@@ -25,9 +25,9 @@ i was also super proud to play at the bbc exposure concert last month in sheffie
 
 # kvlt
 
-[![35143537_10102517758084779_2885971246976073728_n.jpg](https://s33.postimg.cc/nlg2mpbov/35143537_10102517758084779_2885971246976073728_n.jpg)](https://postimg.cc/image/pq0fnsdbf/)
-
 me and laurie played another gig as TRVE YORKSHIRE KVLT ENSEMBLE at foodhall in sheffiedl just last week, which was super fun and (somewhat unsurprisingly i think) found a more appreciative and less confused audience at a noise gig than in an algoravey setting.
+
+[![35143537_10102517758084779_2885971246976073728_n.jpg](https://s33.postimg.cc/nlg2mpbov/35143537_10102517758084779_2885971246976073728_n.jpg)](https://postimg.cc/image/pq0fnsdbf/)
 
 # next year
 
@@ -48,5 +48,7 @@ my creative collective [SONA](https://sonawomen.co.uk/) is part of the 2018 soun
 i'm also releasing an album with an american netlabel called [pan y rosas discos](http://www.panyrosasdiscos.net/) WHICH I'M SUPER EXCITED ABOUT - currently scheduled for 5th august release.
 
 [![pan_y_rosas.jpg](https://s33.postimg.cc/erp654bq7/pan_y_rosas.jpg)](https://postimg.cc/image/r6by5g38b/)
+
+# thanks
 
 massive thanks to everyone who has come to see me play, or booked me, or listened to my stuff.  it really means so much to me that i'm able to do this :D lucy xxx
