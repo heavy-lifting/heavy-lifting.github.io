@@ -51,4 +51,6 @@ i'm also releasing an album with an american netlabel called [pan y rosas discos
 
 # thanks
 
-massive thanks to everyone who has come to see me play, or booked me, or listened to my stuff.  it really means so much to me that i'm able to do this :D lucy xxx
+massive thanks to everyone who has come to see me play, or booked me, or listened to my stuff.  it really means so much to me that i'm able to do this :D 
+
+lucy xxx
