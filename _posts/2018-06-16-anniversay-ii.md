@@ -25,7 +25,7 @@ i was also super proud to play at the bbc exposure concert last month in sheffie
 
 # kvlt
 
-me and laurie played another gig as TRVE YORKSHIRE KVLT ENSEMBLE at foodhall in sheffiedl just last week, which was super fun and (somewhat unsurprisingly i think) found a more appreciative and less confused audience at a noise gig than in an algoravey setting.
+me and laurie played another gig as TRVE YORKSHIRE KVLT ENSEMBLE at foodhall just last week, which was super fun and (somewhat unsurprisingly i think) found a more appreciative and less confused audience at a noise gig than in an algoravey setting.
 
 [![35143537_10102517758084779_2885971246976073728_n.jpg](https://s33.postimg.cc/nlg2mpbov/35143537_10102517758084779_2885971246976073728_n.jpg)](https://postimg.cc/image/pq0fnsdbf/)
 
