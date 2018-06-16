@@ -29,8 +29,16 @@ date: 2018-06-16
 |next year|
 |:---|
 |got some super cool stuff already lined up for the next year including an exchange trip with algoravers in japan (again thanks to [yaxu](http://slab.org/) and [renick](http://www.renickbell.net/doku.php) for co-ordinating everything).|  
-|[![DNPF0_QX0_AEn_VT9.jpg](https://s33.postimg.cc/kelj341jj/DNPF0_QX0_AEn_VT9.jpg)](https://postimg.cc/image/e0wfzuwnf/)|
+
+|composer-curator|
+|:---|
 |my creative collective [SONA](https://sonawomen.co.uk/) is part of the 2018 sound and music [composer-curator](http://soundandmusic.org/projects/news-meet-latest-composer-curators-0) cohort and  we'll be putting on a series of gigs in sheffield and building an interactive sound installation to go alongside them.|
-|[![pan_y_rosas.jpg](https://s33.postimg.cc/erp654bq7/pan_y_rosas.jpg)](https://postimg.cc/image/r6by5g38b/)|
+|[![DNPF0_QX0_AEn_VT9.jpg](https://s33.postimg.cc/kelj341jj/DNPF0_QX0_AEn_VT9.jpg)](https://postimg.cc/image/e0wfzuwnf/)|
+
+|album|
+|:---|
 |i'm also releasing an album with an american netlabel called [pan y rosas discos](http://www.panyrosasdiscos.net/) WHICH I'M SUPER EXCITED ABOUT - currently scheduled for 5th august release.|
+|[![pan_y_rosas.jpg](https://s33.postimg.cc/erp654bq7/pan_y_rosas.jpg)](https://postimg.cc/image/r6by5g38b/)|
+
 |massive thanks to everyone who has come to see me play, or booked me, or listened to my stuff.  it really means so much to me that i'm able to do this :D lucy xxx|
+|:---|
