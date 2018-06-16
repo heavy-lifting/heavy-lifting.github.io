@@ -12,14 +12,11 @@ it's my second anniversary of being heavy lifting tomorrow.  i've been super bus
 | by my count i've played 26 shows in the last year which is pretty wild. still so happy every time someone asks me to play so big thanks to all the promoters out there who have invited me to make noise at their shows, especially [yaxu](http://slab.org/) who has booked me zillions of times!  i don't like to pick faves as they are all so fun but my collabs with [blood sport](https://bloodsport.bandcamp.com/) (RIP) and all the gigs i've played with [TYPE](https://typeensemble.wordpress.com/) (including the derby disaster) standout as some highlights. | [![DT_5v_Vi_Xk_AUr_EGl.jpg](https://s33.postimg.cc/k1u4wrynj/DT_5v_Vi_Xk_AUr_EGl.jpg)](https://postimg.cc/image/zak2ajsbv/) |
 |---|---|
 
-| [![Arecibo_message.png](https://s33.postimg.cc/6kx6dptf3/Arecibo_message.png)](https://postimg.cc/image/c93h4lxrf/) | it has been a lifelong dream to communicate with aliens and i took my first baby steps when [radiobal](http://radiobal.fr/radiotelescopie/radiotelescopie.html) in paris beamed my set into outer space (earthlings can watch on [youtube](https://www.youtube.com/watch?v=nFL95YQnKWw&feature=youtu.be)). |
+| [![Arecibo_message.png](https://s33.postimg.cc/6kx6dptf3/Arecibo_message.png)](https://postimg.cc/image/c93h4lxrf/) | it has been a lifelong dream to communicate with aliens and i took my first baby steps when [radiobal](http://radiobal.fr/radiotelescopie/radiotelescopie.html) in paris beamed my set into outer space (earthlings can watch on [youtube](https://www.youtube.com/watch?v=nFL95YQnKWw&feature=youtu.be)).  i was also super proud to play at the bbc exposure concert last month in sheffield and to get some of my set played on radio 3 (shout out to my dad for listening to it live, something even i didn't manage). |
 |---|---|
 
-[![Dd_Vc_NTe_X0_AAWAdw.jpg](https://s33.postimg.cc/xvihlltr3/Dd_Vc_NTe_X0_AAWAdw.jpg)](https://postimg.cc/image/w3piqpae3/)
-
-i was also super proud to play at the bbc exposure concert last month in sheffield and to get some of my set played on radio 3 (shout out to my dad for listening to it live, something even i didn't manage).
-
-[![35143537_10102517758084779_2885971246976073728_n.jpg](https://s33.postimg.cc/nlg2mpbov/35143537_10102517758084779_2885971246976073728_n.jpg)](https://postimg.cc/image/pq0fnsdbf/)
+| [![Dd_Vc_NTe_X0_AAWAdw.jpg](https://s33.postimg.cc/xvihlltr3/Dd_Vc_NTe_X0_AAWAdw.jpg)](https://postimg.cc/image/w3piqpae3/) | [![35143537_10102517758084779_2885971246976073728_n.jpg](https://s33.postimg.cc/nlg2mpbov/35143537_10102517758084779_2885971246976073728_n.jpg)](https://postimg.cc/image/pq0fnsdbf/) |
+|---|---|
 
 me and laurie played another gig as TRVE YORKSHIRE KVLT ENSEMBLE at foodhall in sheffiedl just last week, which was super fun and (somewhat unsurprisingly i think) found a more appreciative and less confused audience at a noise gig than in an algoravey setting.
 
