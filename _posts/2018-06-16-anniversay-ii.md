@@ -4,11 +4,9 @@ title: "anniversary ii"
 date: 2018-06-16
 ---
 
-Markdown | Less | Pretty
---- | --- | ---
-*Still* | `renders` | **nicely**
-1 | 2 | 3
 
+
+|hello|
 |:---|
 |it's my second anniversary of being heavy lifting tomorrow.  i've been super busy this year and haven't really been keeping my website up to date, but i've just been doing some online gardening getting all my [shows](https://heavy-lifting.github.io/shows) listed and stuff and have been reflecting on a few highlights :::)|
 
