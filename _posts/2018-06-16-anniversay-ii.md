@@ -3,14 +3,7 @@ layout: post
 title: "anniversary ii"
 date: 2018-06-16
 ---
-<style type="text/css">
-.image-left {
-  display: block;
-  margin-left: auto;
-  margin-right: auto;
-  float: right;
-}
-</style>
+
 
 it's my second anniversary of being heavy lifting tomorrow.  i've been super busy this year and haven't really been keeping my website up to date, but i've just been doing some online gardening getting all my [shows](https://heavy-lifting.github.io/shows) listed and stuff and have been reflecting on a few highlights :::)
 
@@ -18,7 +11,7 @@ it's my second anniversary of being heavy lifting tomorrow.  i've been super bus
 
 by my count i've played 26 shows in the last year which is pretty wild. still so happy every time someone asks me to play so big thanks to all the promoters out there who have invited me to make noise at their shows, especially [yaxu](http://slab.org/) who has booked me zillions of times!  i don't like to pick faves as they are all so fun but my collabs with [blood sport](https://bloodsport.bandcamp.com/) (RIP) and all the gigs i've played with [TYPE](https://typeensemble.wordpress.com/) (including the derby disaster) standout as some highlights.  
 
-[![Arecibo_message.png](https://s33.postimg.cc/6kx6dptf3/Arecibo_message.png)](https://postimg.cc/image/c93h4lxrf/){: .image-left }
+[![Arecibo_message.png](https://s33.postimg.cc/6kx6dptf3/Arecibo_message.png)](https://postimg.cc/image/c93h4lxrf/){:style="float: right;margin-right: 7px;margin-top: 7px;"}
 
 it has been a lifelong dream to communicate with aliens and i took my first baby steps when [radiobal](http://radiobal.fr/radiotelescopie/radiotelescopie.html) in paris beamed my set into outer space (earthlings can watch on [youtube](https://www.youtube.com/watch?v=nFL95YQnKWw&feature=youtu.be)).
 
