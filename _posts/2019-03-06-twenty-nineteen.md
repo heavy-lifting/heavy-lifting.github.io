@@ -29,7 +29,7 @@ massive shout out to [alex](http://slab.org/) and [renick](https://renickbell.ba
 ## unpeeled
 around the japan trip i also worked on the unpeeled series with amy and deb of [SONA](https://sonawomen.co.uk/).  we put on a series of events promoting women in sound and music technology, with performances from six incredible artists, a sound installation by us, and a kids workshop with the amazing laura clough.
 
-![pic of vicky clark performing at unpeeled](https://i.postimg.cc/xqQjb5Yd/sona-vicky-clarke-02-11-18-23.jpg)
+![pic of vicky clark performing at unpeeled](https://i.postimg.cc/BZLjk7V2/sona-vicky-clarke-02-11-18-23.jpg)
 
 there is so much to tell about the project which was really challenging but also super rewarding - you can read a bit more about it (and see some of [laura merrill's](http://www.lauramerrillphotos.com/) beautiful photos) on our [website](https://sonawomen.co.uk/2018/09/06/sona-unpeeled/).
 
