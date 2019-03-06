@@ -41,6 +41,9 @@ my day job has been pretty challenging recently and so i've successfully asked t
 i'm making a conscious effort this year to be more active in deciding how to use my time, and so far i'm feeling pretty good :)
 
 ## mutualism
+
+![mutualism flier](https://i.postimg.cc/vHPSTzy8/uk-0222-1222172-1276456-front.jpg)
+
 i played a super fun show for [mutualism](https://mutualismuk.bandcamp.com/) at [hatch](http://www.hatchsheffield.com/) (fka audacious art experiment) with loads of other amazing artists and everyone smashed it.  i hadn't played a solo show for a while and i was trying out some new stuff, plus i love what mutualism do and i wanted to do a great job for them so i was SUPER nervous (as i was setting up i literally had to keep jumping up and down cause i had so much nervous energy and my legs were involuntarily scooting around). BUT i thought it went pretty well, a couple of duff moments, but people in the crowd were super cool and danced loads and i got loads of nice comments after. i stayed out to watch [iceboy violet's](https://soundcloud.com/iceboy_violet) set (which was AMAZING) but had to get a relatively early night since i was teaching little kids the next day! one of my favourite shows i've ever played - thank you mutualism <3
 
 ## upcoming
