@@ -46,11 +46,11 @@ i played a super fun show for [mutualism](https://mutualismuk.bandcamp.com/) at 
 ## upcoming
 so i've got loads of super fun projects coming up to - doing more organising and weird sound art than playing gigs at the moment which feels a bit odd since i played so many last year, but i'm enjoying the difference in pace.
 
-### [leeds international festival](https://leedsinternationalfestival.com/)
-i'm organising a feminist hackathon with northern sound collective (me, joanne armitage and lizzie wilson) called 'automation and me' - we'll have 20 amazing women coming together to make new work about automation and the body. so so so so psyched for this!
+### automation and me
+i'm organising a feminist hackathon at [leeds international festival](https://leedsinternationalfestival.com/) with northern sound collective (me, joanne armitage and lizzie wilson) called 'automation and me' - we'll have 20 amazing women coming together to make new work about automation and the body. so so so so psyched for this!
 
-### [algomech](https://algomech.com/2019/)
-algomech has rolled round once again, and i couldn't be more excited! i'm producing an experimental greek chorus exploring the metrical structure of sophocles' antigone through sonification & working with alex on some of the organisation, and playing a live set with TYPE.  algomech is one of the best things to happen in sheffield and i can't wait to see what everyone comes up with this year.
+### algomech
+[algomech](https://algomech.com/2019/) has rolled round once again, and i couldn't be more excited! i'm producing an experimental greek chorus exploring the metrical structure of sophocles' antigone through sonification & working with alex on some of the organisation, and playing a live set with TYPE.  algomech is one of the best things to happen in sheffield and i can't wait to see what everyone comes up with this year.
 
 ### LANDMASS
 SONA got a grant through YSWN to run a sound art project between sheffield and orkney called LANDMASS.  i'm really happy about this one for a couple of reasons - one because it means we get to visit amy in orkney and i'm really missing her, and secondly as it's the first grant i've had for a purely creative project and i don't need to do any organising (beyond sorting my own travel etc).  we're planning to do a data sonification project using analogue film images, and we're also helping to make connections with various sound and art folks while we're up there.
