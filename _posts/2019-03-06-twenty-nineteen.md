@@ -22,7 +22,7 @@ we also delivered lots of workshops, met and played with so many incredible arti
 
 oh yeah i also got to go and see [sendai girls](http://sendaigirls.jp/) wrestling in the legendary [korakuen hall](https://www.tokyo-dome.co.jp/en/tourists/hall/) which was really just a wonderful experience.
 
-![pic of me with meiko satamura in the background](https://i.postimg.cc/0rCkGS20/IMG-20181116-205613.jpg)
+![pic of me with meiko satamura in the background](https://i.postimg.cc/J7fsL3fv/IMG-20181116-205613.jpg)
 
 massive shout out to [alex](http://slab.org/) and [renick](https://renickbell.bandcamp.com/) for organising everything, and to [kubota sensei](http://www.idd.tamabi.ac.jp/~kubotaa/index.html), [tadokoro sensei](https://github.com/tado), [chiho](https://soundcloud.com/azamiline) & [mori](https://moxus.org/) for being such excellent hosts.
 
