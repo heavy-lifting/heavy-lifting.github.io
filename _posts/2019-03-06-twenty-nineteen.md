@@ -27,16 +27,16 @@ oh yeah i also got to go and see [sendai girls](http://sendaigirls.jp/) wrestlin
 massive shout out to [alex](http://slab.org/) and [renick](https://renickbell.bandcamp.com/) for organising everything, and to [kubota sensei](http://www.idd.tamabi.ac.jp/~kubotaa/index.html), [tadokoro sensei](https://github.com/tado), [chiho](https://soundcloud.com/azamiline) & [mori](https://moxus.org/) for being such excellent hosts.
 
 ## unpeeled
-around the japan trip i also worked on the unpeeled series with amy and deb of [SONA](https://sonawomen.co.uk/).  we put on a series of events promoting women in sound and music technology, with performances from six incredible artists, a sound installation by us, and a kids workshop with the amazing laura clough.
+around the japan trip i also worked on the unpeeled series with amy and deb of [SONA](https://sonawomen.co.uk/).  we put on a series of events promoting women in sound and music technology, with performances from six incredible artists, a sound installation by us, and a kids workshop with the amazing [laura clough](https://soundcloud.com/laura-clough-2).
 
 ![pic of vicky clark performing at unpeeled](https://i.postimg.cc/BZLjk7V2/sona-vicky-clarke-02-11-18-23.jpg)
 
 there is so much to tell about the project which was really challenging but also super rewarding - you can read a bit more about it (and see some of [laura merrill's](http://www.lauramerrillphotos.com/) beautiful photos) on our [website](https://sonawomen.co.uk/2018/09/06/sona-unpeeled/).
 
-we were also lucky enough to have [zoe kinross](https://vimeo.com/user24676890) and diana read down to film at all events, and they are busily editing everything together now, so watch this space for video documentation!
+we were also lucky enough to have [zoe kinross](https://vimeo.com/user24676890) and diana read down to film at all the events, and they are busily editing everything together now, so watch this space for video documentation!
 
 ## work/life
-my day job has been pretty challenging recently and so i've successfully asked to reduce my hours - so i'm now a part-timer!  the freedom is so wonderful, i feel so much more zen & the quality of my work has really improved as a result.
+my day job has been pretty challenging recently and so i've successfully asked to reduce my hours and i'm now a part-timer!  the freedom is so wonderful, i feel so much more zen & the quality of my work has really improved as a result.
 
 i'm making a conscious effort this year to be more active in deciding how to use my time, and so far i'm feeling pretty good :)
 
@@ -44,7 +44,7 @@ i'm making a conscious effort this year to be more active in deciding how to use
 i played a super fun show for [mutualism](https://mutualismuk.bandcamp.com/) at [hatch](http://www.hatchsheffield.com/) (fka audacious art experiment) with loads of other amazing artists and everyone smashed it.  i hadn't played a solo show for a while and i was trying out some new stuff, plus i love what mutualism do and i wanted to do a great job for them so i was SUPER nervous (as i was setting up i literally had to keep jumping up and down cause i had so much nervous energy and my legs were involuntarily scooting around). BUT i thought it went pretty well, a couple of duff moments, but people in the crowd were super cool and danced loads and i got loads of nice comments after. i stayed out to watch [iceboy violet's](https://soundcloud.com/iceboy_violet) set (which was AMAZING) but had to get a relatively early night since i was teaching little kids the next day! one of my favourite shows i've ever played - thank you mutualism <3
 
 ## upcoming
-so i've got loads of super fun projects coming up to - doing more organising and weird sound art than playing gigs at the moment which feels a bit odd since i played so many last year, but i'm enjoying the different pace.
+so i've got loads of super fun projects coming up to - doing more organising and weird sound art than playing gigs at the moment which feels a bit odd since i played so many last year, but i'm enjoying the difference in pace.
 * [leeds international festival](https://leedsinternationalfestival.com/) - i'm organising a feminist hackathon with northern sound collective (me, joanne armitage and lizzie wilson) called 'automation and me' - we'll have 20 amazing women coming together to make new work about automation and the body. so so so so psyched for this!
 * [algomech](https://algomech.com/2019/) - algomech has rolled round once again, and i couldn't be more excited! i'm producing an experimental greek chorus exploring the metrical structure of sophocles' antigone through sonification & working with alex on some of the organisation, and playing a live set with TYPE.  algomech is one of the best things to happen in sheffield and i can't wait to see what everyone comes up with this year.
 * LANDMASS - SONA got a grant through YSWN to run a sound art project between sheffield and orkney called LANDMASS.  i'm really happy about this one for a couple of reasons - one because it means we get to visit amy in orkney and i'm really missing her, and secondly as it's the first grant i've had for a purely creative project and i don't need to do any organising (beyond sorting my own travel etc).  we're planning to do a data sonification project using analogue film images, and we're also helping to make connections with various sound and art folks while we're up there.
