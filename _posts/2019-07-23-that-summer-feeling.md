@@ -38,17 +38,17 @@ not gonna lie tho, organising the event was an incredibly stressful experience -
 
 no rest for the wicked though as the following weekend was algomech festival and characteristically i was running round like a headless chicken doing too many things:
 
-- i delivered a tidal workshop to an amazing group of people (some of whom had travelled a long way) who were all super engaged and peer-supportive!
+i delivered a tidal workshop to an amazing group of people (some of whom had travelled a long way) who were all super engaged and peer-supportive!
 
-- trve yorkshire kvlt ensemble played at dina which was really fun as always - s/o to alessandro for sorting out our sound
+trve yorkshire kvlt ensemble played at dina which was really fun as always - s/o to alessandro for sorting out our sound
 	
 ![alt text](https://i.postimg.cc/3w94JFC0/D64-EAe9-W4-AESYEv.jpg "kvlt doom hand")
 	
-- type also played using ryan's super-cool new software polyglot.  this was a bit of a stressful performance all round due to some technical issues during what felt like quite a high-pressure show, but i feel like we made it work even so.
+type also played using ryan's super-cool new software polyglot.  this was a bit of a stressful performance all round due to some technical issues during what felt like quite a high-pressure show, but i feel like we made it work even so.
 
 ![alt text](https://i.postimg.cc/9z3zN8VK/D6j-KXp0-Ws-AALa-5.jpg "polyglot")
 
-- i produced an experimental reading of antigone - using metrical structures from the greek verse i composed a piece of music to accompany a chorus performance.  this was a pretty weird but fun thing to do - again massive thanks to everyone who took part for properly getting into it and believing in my weird vision. i still don't know if this was objectively good or not (although lots of people came and said they enjoyed it) as i just really don't have a barometer for this sort of thing.  it was stressful pulling it together but i really enjoyed the performance so i guess that's a win.
+i produced an experimental reading of antigone - using metrical structures from the greek verse i composed a piece of music to accompany a chorus performance.  this was a pretty weird but fun thing to do - again massive thanks to everyone who took part for properly getting into it and believing in my weird vision. i still don't know if this was objectively good or not (although lots of people came and said they enjoyed it) as i just really don't have a barometer for this sort of thing.  it was stressful pulling it together but i really enjoyed the performance so i guess that's a win.
 
 ![alt text](https://i.postimg.cc/Vv0dgQyX/D67ns-DJXs-AA6i-ES.jpg "antigone")
 
