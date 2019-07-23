@@ -12,7 +12,9 @@ so a quick run down of heavy lifting activities apr-jul 2019:
 
 # rotterdam
 
-me and laurie went to rotterdam to represent type at algo~rhythms, an amazing event organised by joana chicau (who is frankly a massive inspiration!!). we played at worm and did a little q&a - ryan and innocent joined us over the internet which was nice, they put their faces up on a massive screen which was quite funny.
+me and laurie went to rotterdam to represent type at [algo~rhythms](https://worm.org/production/algo-rhythms-3/), an amazing event organised by [joana chicau](https://joanachicau.com/) (who is frankly a massive inspiration!!). we played at [worm](https://worm.org/) and did a little q&a - ryan and innocent joined us over the internet which was nice, they put their faces up on a massive screen which was quite funny.
+
+
 
 we absolutly loved rotterdam - it felt like there was so much happening in the city. we stayed at the worm house in willewall with wotjek who really looked after us and was a super host. we also ate dinner at the top of this fancy tower where we had a 'surprise menu' which was very delicious. we basically just biked round looking at cool stuff and talking to lovely people and eating great food.
 
@@ -86,4 +88,18 @@ i've got shows in coverntry, copenhagen and sheffield in august, and i'm teachin
 happy summer
 
 lucy x
+
+
+![alt text](https://i.postimg.cc/3w94JFC0/D64-EAe9-W4-AESYEv.jpg "kvlt doom hand")
+![alt text](https://i.postimg.cc/Vv0dgQyX/D67ns-DJXs-AA6i-ES.jpg "antigone")
+![alt text](https://i.postimg.cc/9z3zN8VK/D6j-KXp0-Ws-AALa-5.jpg "polyglot")
+![alt text](https://i.postimg.cc/qR5N2BFk/D7-R5629-Xo-AAy630.jpg "hatch gig poster")
+![alt text](https://i.postimg.cc/ryDJ3DMN/D7-U3-Mve-X4-AIn5-GN.jpg "swag hire car")
+![alt text](https://i.postimg.cc/Wpxnvs4L/D7u8-GUEXs-AQHx-U6.jpg "corsica gig poster")
+![alt text](https://i.postimg.cc/cHHKKtX9/D7zfp-Xz-Ws-AA5e1-N.jpg "orcadian newspaper")
+![alt text](https://i.postimg.cc/7LqJkW7y/D-RF4-V6-UYAEq-Lk-D.jpg "all my cute gear")
+![alt text](https://i.postimg.cc/DwPdLsPn/IMG-20190428-150002 "laurie in the cube house")
+![alt text](https://i.postimg.cc/8PWbkxFF/IMG-20190428-213244 "ryan and innocent's big faces")
+![alt text](https://i.postimg.cc/DZ8q9Nkw/IMG-20190508-171149 "messy hack table")
+![alt text](https://i.postimg.cc/jjq6X5MN/IMG-20190511-234005 "toni chiho and me")
 
