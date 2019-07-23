@@ -98,8 +98,8 @@ lucy x
 ![alt text](https://i.postimg.cc/Wpxnvs4L/D7u8-GUEXs-AQHx-U6.jpg "corsica gig poster")
 ![alt text](https://i.postimg.cc/cHHKKtX9/D7zfp-Xz-Ws-AA5e1-N.jpg "orcadian newspaper")
 ![alt text](https://i.postimg.cc/7LqJkW7y/D-RF4-V6-UYAEq-Lk-D.jpg "all my cute gear")
-![alt text](https://i.postimg.cc/DwPdLsPn/IMG-20190428-150002 "laurie in the cube house")
-![alt text](https://i.postimg.cc/8PWbkxFF/IMG-20190428-213244 "ryan and innocent's big faces")
-![alt text](https://i.postimg.cc/DZ8q9Nkw/IMG-20190508-171149 "messy hack table")
-![alt text](https://i.postimg.cc/jjq6X5MN/IMG-20190511-234005 "toni chiho and me")
+![alt text](https://i.postimg.cc/DwPdLsPn/IMG-20190428-150002.jpg "laurie in the cube house")
+![alt text](https://i.postimg.cc/8PWbkxFF/IMG-20190428-213244.jpg "ryan and innocent's big faces")
+![alt text](https://i.postimg.cc/DZ8q9Nkw/IMG-20190508-171149.jpg "messy hack table")
+![alt text](https://i.postimg.cc/jjq6X5MN/IMG-20190511-234005.jpg "toni chiho and me")
 
