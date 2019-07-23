@@ -26,9 +26,9 @@ everyone we met was so kind, welcoming and cool - we <3 nl! thank you so much to
 
 ![alt text](https://i.postimg.cc/DZ8q9Nkw/IMG-20190508-171149.jpg "messy hack table")
 
-then in may i co-organised a feminist hackathon as part of leeds international festival alongside joanne armitage and lizzie wilson.  we invited 20 womxn to come and take part in a 2-day hackathon on the theme of automation & bodies.  the event was absolutely wonderful, just felt like pure magic to be surrounded by so many incredible female artists and makers, and i feel really proud of what we achieved.  all the projects were so thought provoking, fun, clever & beautiful, and i'm so thankful to everyone who took part for totally going for it.
+then in may i co-organised a [feminist hackathon](https://leedsinternationalfestival.com/event/automation-and-me/) as part of leeds international festival alongside [joanne armitage](https://twitter.com/joannnne?lang=en) and [lizzie wilson](https://twitter.com/dgtlslvs).  we invited 20 womxn to come and take part in a 2-day hackathon on the theme of automation & bodies.  the event was absolutely wonderful, just felt like pure magic to be surrounded by so many incredible female artists and makers, and i feel really proud of what we achieved.  all the projects were so thought provoking, fun, clever & beautiful, and i'm so thankful to everyone who took part for totally going for it.
 
-was also really lovely to be able to host chiho over from japan and to get to know her a bit better too.
+was also really lovely to be able to host [chiho](https://twitter.com/chihooka) over from japan and to get to know her a bit better too.
 
 ![alt text](https://i.postimg.cc/jjq6X5MN/IMG-20190511-234005.jpg "toni chiho and me")
 
@@ -48,18 +48,20 @@ no rest for the wicked though as the following weekend was algomech festival and
 
 ![alt text](https://i.postimg.cc/9z3zN8VK/D6j-KXp0-Ws-AALa-5.jpg "polyglot")
 
-- antigone - i produced a super weird reading of antigone - using metrical structures from the greek verse i composed a piece of music to accompany a chorus performance.  this was a pretty weird but fun thing to do - again massive thanks to everyone who took part for properly getting into it and believing in my weird vision.  i still don't know if this was objectively good or not (although lots of people came and said they enjoyed it) as i just really don't have a barometer for this sort of thing.  it was stressful pulling it together but i really enjoyed the performance so i guess that's a win.
+- i produced an experimental reading of antigone - using metrical structures from the greek verse i composed a piece of music to accompany a chorus performance.  this was a pretty weird but fun thing to do - again massive thanks to everyone who took part for properly getting into it and believing in my weird vision. i still don't know if this was objectively good or not (although lots of people came and said they enjoyed it) as i just really don't have a barometer for this sort of thing.  it was stressful pulling it together but i really enjoyed the performance so i guess that's a win.
 
 ![alt text](https://i.postimg.cc/Vv0dgQyX/D67ns-DJXs-AA6i-ES.jpg "antigone")
 
 # landmass
-a few weeks later i zoomed off to orkney with deborah (and a few taggers on) to meet up with amy and reunite sona for our landmass project.
+a few weeks later i zoomed off to orkney with deborah (and a few taggers on) to meet up with [amy](https://twitter.com/audio_bee) and reunite sona for our landmass project.
 
 we hired a super-swag bus with tinted windows for the journey north (it's a really long way!) and stopped off in stirling en-route.  we were all super excited on the drive and it was a pretty comfortable and uneventful journey.
 
 ![alt text](https://i.postimg.cc/ryDJ3DMN/D7-U3-Mve-X4-AIn5-GN.jpg "swag hire car")
 
 i don't think any of us were really prepared for orkney though - so wild. i'm not really a wordsmith so not sure how i can do it justice.  basically water everywhere, sky everywhere, monoliths everywhere, cows everywhere, art everywhere. just an amazing spirit and atmosphere of energy and renewal.
+
+![alt text](https://i.postimg.cc/zvg7HGjh/PICT0057.jpg "orkney")
 
 we had a whirlwind week taking in as many sights as possible (which was about 1% of all the things we wanted to do), taking and developing photos, recording sounds, visiting archives and not sleeping very much.  on the last day we held an 'open studio' in the library in stromness to show our works in progress - photos, drawings, and some basic sonification turning our images into sound.  loads of people came along and really got involved, trying out the sonification on their own drawings and generally being lovely and taking a lot of interest in what we were up to.
 
@@ -73,7 +75,7 @@ we're continuing to work on the project remotely working toawrds amy's visit to 
 
 # hatch x2
 
-i played two shows at hatch in june - one for plenty fuss supporting dorcha and the other for rowan with dbh and au sobre blau.  both evenings were super fun (despite technical issues at the dorcha gig) but i particularly enjoyed playing for rowan.  i've been working on some new sounds using more vocals (i've got a vocoder now which i can send an algorithmic midi pattern to as a carrier signal!) and synth stuff.  i was pretty nervous but i think the show went well and i had loads of fun.
+i played two shows at [hatch](http://www.hatchsheffield.com/) in june - one for plenty fuss supporting dorcha and the other for rowan with dbh and or sobre blau.  both evenings were super fun (despite technical issues at the dorcha gig) but i particularly enjoyed playing for rowan.  i've been working on some new sounds using more vocals (i've got a vocoder now which i can send an algorithmic midi pattern to as a carrier signal!) and synth stuff.  i was pretty nervous but i think the show went well and i had loads of fun.
 
 ![alt text](https://i.postimg.cc/qR5N2BFk/D7-R5629-Xo-AAy630.jpg "hatch gig poster")
 
@@ -81,20 +83,19 @@ i really feel like the hatch folk have done a great job in re-energising 'old au
 
 # london
 
-then i was off to london to teach a foxdot workshop at music hackspace - as ever shout out to harry for being an excellent organiser and host - always a pleasure! the workshop went pretty well (although i've not really taught foxdot before and i think i learnt as much as the participants) and my dad picked me up as usual which was great - if you're reading this (think you are the only person who does), thanks dad!
+then i was off to london to teach a foxdot workshop at [music hackspace](http://musichackspace.org/) - as ever shout out to [harry](https://twitter.com/harrymurdoch) for being an excellent organiser and host - always a pleasure! the workshop went pretty well (although i've not really taught foxdot before and i think i learnt as much as the participants) and my dad picked me up as usual which was great - if you're reading this (think you are the only person who does), thanks dad!
 
-the next day i played at corsica studios.  can i just say first off this was a bit of a dream come true for me, having seen so many amazing shows at corsica it hardly felt real to be playing there myself.  alex and harry did an amazing job of the organisation, everything was so slick and there was a great crowd. it was also really sweet that a bunch of my london pals came through <3
+the next day i played at corsica studios.  can i just say first off this was a bit of a dream come true for me, having seen so many amazing shows at corsica it hardly felt real to be playing there myself.  [alex](https://twitter.com/yaxu) and harry did an amazing job of the organisation, everything was so slick and there was a great crowd. it was also really sweet that a bunch of my london pals came through <3
 
 ![alt text](https://i.postimg.cc/Wpxnvs4L/D7u8-GUEXs-AQHx-U6.jpg "corsica gig poster")
 
-i played a collaborative set with graham dunning where we decided to restrict ourselves to 10 folders of samples each from our collections.  this worked really well as an approach and it felt as though we were truly collaborating rather than just playing side by side.  graham also annotates his code which i've started to do now - feels like a nice way to engage with the audience and also really helped keep track of what was going on during a fairly hectic set. i had a lot of fun practicing and performing and hope we get the chance to play together again soon.
+i played a collaborative set with [graham dunning](https://twitter.com/grahamdunning) where we decided to restrict ourselves to 10 folders of samples each from our collections.  this worked really well as an approach and it felt as though we were collaborating in a really genuine way rather than just playing side by side.  graham also annotates his code which i've started to do now - feels like a nice way to engage with the audience and also really helped keep track of what was going on during a fairly hectic set. i had a lot of fun practicing and performing and hope we get the chance to play together again soon.
 
 cheers graham for being a great collaborator & cheers alex for suggesting that we perform together.
 
-
 # thanks for watching
 
-i've been in the studio at tye die tapes the last few weekends recording my new album 'thanks for watching'.  i'm using loads of old hardware like dr groove, this kawai 'pop synth module', the final fantasy synth (thanks michael for letting me use it) and my trusty rocket.  
+i've been in the studio at [tye die tapes](http://tyedietapes.com/) the last few weekends recording my new album 'thanks for watching'.  i'm using loads of old hardware like [dr groove](http://www.vintagesynth.com/roland/dr202.php), this [kawai 'pop synth module'](https://sonicstate.com/synth_reviews/kawai_phm/), the final fantasy synth (sorry i forgot the name of it so i can't add a link right now but i'll update that later- thanks michael for letting me use it) and my trusty [rocket](https://www.soundonsound.com/reviews/waldorf-rocket).  
 
 ![alt text](https://i.postimg.cc/7LqJkW7y/D-RF4-V6-UYAEq-Lk-D.jpg "all my cute gear")
 
@@ -102,11 +103,10 @@ i've recorded like 5 hours of improv which we're editing down into something mor
 
 i'm super happy with what i've done so far and we've got rough edits for four of seven tracks.  i'm going to add some overdubs and vocals which i did to an extent with mortal springs, although this is much more of a step away from a raw improv album. (and i've got no idea how i could play the tracks live, or if i even want to - problem for another day). but for the first time in my life i feel like i'm making the music that i hear in my head which is super satisfying.
 
-it's coming out on pan y rosas discos on 1st september, it'll be free to download, but if you want to send me £££ i'll have new shirts for sale on pickled discs around the same time.
+it's coming out on [pan y rosas discos](http://www.panyrosasdiscos.net/) on 1st september, it'll be free to download, but if you want to send me £££ i'll have new shirts for sale on pickled discs around the same time.
 
-
-next up:
-i've got shows in coverntry, copenhagen and sheffield in august, and i'm teaching at the live code summer school, and doing some work for diversity festival at the rotherham show.
+# next up:
+i've got [shows](https://heavy-lifting.org/shows) in [coventry](https://www.theherbert.org/whats_on/1445/wonder__where_reality_and_imaginary_collide), [copenhagen](http://digitalfrontrunners.dk/) and sheffield in august, and i'm teaching at the [live code summer school](https://livecode-summerschool.github.io/), and doing some workshops for diversity festival at the [rotherham show](https://www.rotherham.gov.uk/rotherhamshow).
 
 enjoy that summer feeling
 
