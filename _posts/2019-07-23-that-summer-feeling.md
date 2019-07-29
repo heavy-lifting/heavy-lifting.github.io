@@ -71,7 +71,7 @@ we even got our picture in the paper
 
 it was also so so so good to see amy, although it highlighted how much i miss having her round the corner it inspired me to be better at keeping in touch with (physically) distant friends.
 
-we're continuing to work on the project remotely working toawrds amy's visit to sheffield in october which will see us installing and exhibiting the final piece.
+we're continuing to work on the project remotely working towards amy's visit to sheffield in october which will see us installing and exhibiting the final piece.
 
 # hatch x2
 
@@ -95,7 +95,7 @@ cheers graham for being a great collaborator & cheers alex for suggesting that w
 
 # thanks for watching
 
-i've been in the studio at [tye die tapes](http://tyedietapes.com/) the last few weekends recording my new album 'thanks for watching'.  i'm using loads of old hardware like [dr groove](http://www.vintagesynth.com/roland/dr202.php), this [kawai 'pop synth module'](https://sonicstate.com/synth_reviews/kawai_phm/), the final fantasy synth (sorry i forgot the name of it so i can't add a link right now but i'll update that later- thanks michael for letting me use it) and my trusty [rocket](https://www.soundonsound.com/reviews/waldorf-rocket).  
+i've been in the studio at [tye die tapes](http://tyedietapes.com/) the last few weekends recording my new album 'thanks for watching'.  i'm using loads of old hardware like [dr groove](http://www.vintagesynth.com/roland/dr202.php), this [kawai 'pop synth module'](https://sonicstate.com/synth_reviews/kawai_phm/), the [final fantasy synth](https://en.audiofanzine.com/sound-module/roland/M-GS64/user_reviews/r.41729.html) (thanks michael for letting me use it) and my trusty [rocket](https://www.soundonsound.com/reviews/waldorf-rocket).  
 
 ![alt text](https://i.postimg.cc/7LqJkW7y/D-RF4-V6-UYAEq-Lk-D.jpg "all my cute gear")
 
