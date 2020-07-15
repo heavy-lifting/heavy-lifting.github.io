@@ -1,3 +1,11 @@
+---
+layout: post
+title: "newsletter"
+date: 2020-07-15
+---
+
+*I'm stepping away from social media and starting a newsletter instead, which I'll also post to my blog here - starting NOW!*
+
 I kinda just need an email to send out for my first subscribers, so I guess I'll talk a little bit about why I'm doing this....
 
 I'm trying to step away from Social Media ((I'm just proofreading this and I've no idea why I capitalised that but it kinda adds it's own emphasis so I'm leaving it)) which has been really unproductive and negative for me over the last couple of months. BUT I know some people follow me online for updates about my various musical projects. And I also like to share stuff that other people have made that I think is good.
