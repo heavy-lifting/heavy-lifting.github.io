@@ -8,7 +8,7 @@ Hi all - this update is brought to you by my recent week off work & a visit from
 
 I've spent the last week away from the internet almost entirely (sorry if I haven't replied to your email... I'll get to it soon I promise!). I've been riding my bike a lot, tending my garden, and generally enjoying the sunshine.
 
-![a sunny orange california poppy in my garden](http://heavylifting.nfshost.com/newsletter_img/flower.jpeg){:class="img-responsive"}
+![a sunny orange california poppy in my garden](http://heavylifting.nfshost.com/newsletter_img/flower.jpeg){:height="50%" width="50%"}
 
 I heard this kind of corny phrase recently which I really liked: "the best time to plant a tree is 20 years ago, the second best time is now". Over the last few months I've been catching up with some trees I've been intending to plant for some time. Which means I feel a bit behind on *today*, and really this whole year has felt slow. I didn't manage to write down any goals until May, and when I did they felt soft (but not in a bad way):
 
@@ -18,7 +18,7 @@ I heard this kind of corny phrase recently which I really liked: "the best time 
 
 I think with the lockdown it's an opportunity to re-mould my brain a bit so I'm trying to keep this stuff in mind while I do that.
 
-![a badly exposed photo of a waterfall in the loxley valley](http://heavylifting.nfshost.com/newsletter_img/loxley.JPG){:class="img-responsive"}
+![a badly exposed photo of a waterfall in the loxley valley](http://heavylifting.nfshost.com/newsletter_img/loxley.JPG){:height="50%" width="50%"}
 
 I went for a walk in the Loxley Valley a few days ago and took some photos with my old analogue camera. I used a quick at-home method to get the images - developing negatives in a paterson tank and then scanning them into the computer. I did something similar with Deborah in Orkney last summer and it feels like a really nice halfway point between analogue and digital. I'm still working out the best timings etc but enjoying myself on the way.
 
