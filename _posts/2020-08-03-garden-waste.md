@@ -1,3 +1,9 @@
+---
+layout: post
+title: "garden waste"
+date: 2020-08-03
+---
+
 Hi all - this update is brought to you by my recent week off work & a visit from my dad and stepmum.
 
 I've spent the last week away from the internet almost entirely (sorry if I haven't replied to your email... I'll get to it soon I promise!). I've been riding my bike a lot, tending my garden, and generally enjoying the sunshine.
