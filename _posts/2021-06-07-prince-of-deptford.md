@@ -1,3 +1,9 @@
+---
+layout: post
+title: "prince of deptford"
+date: 2021-06-07
+---
+
 #### Hello
 I haven't really got any news, I've been teaching a lot and I've been enjoying making music that way, rather than performing or recording. But I haven't written in so long and my last email was so sad that I wanted to send something. I feel this email is more like a perzine than a newsletter. 
 
